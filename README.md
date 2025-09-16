@@ -14,3 +14,6 @@ I found this article important because with the ever developing and growth of AI
 
 
 ---
+
+#### Andrew's comment
+I think the article was interesting because I also think that AI is an ever glooming topic and the fears of AI taking over is very much real so being able to read information on whether or not AI could take over was interesting.
